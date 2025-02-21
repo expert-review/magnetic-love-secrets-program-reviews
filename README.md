@@ -55,9 +55,7 @@ I've gathered 10 real user reviews, including both positive and skeptical perspe
 - Uses proven attraction triggers
 - Helps boost confidence and social appeal
 - Teaches subtle techniques to build deeper connections
-
-![Love & Relationships](https://secretrevealhub.online/wp-content/uploads/2025/02/magnetic-love-secrets.png)
-
+  
 ---
 
 ## Magnetic Love Secrets Reviews: What Makes It Stand Out?

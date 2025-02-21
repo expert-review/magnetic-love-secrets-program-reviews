@@ -66,7 +66,7 @@ Unlike other dating guides, **Magnetic Love Secrets** provides actionable steps 
 - ✅ Practical exercises to build confidence  
 - ✅ Applicable to both men and women
 
-[![Magnetic Love Secrets Review](https://img.youtube.com/vi/VIDEO_ID/hqdefault.jpg)](https://www.youtube.com/watch?v=v=sl8GbO0faLA)
+[![Magnetic Love Secrets Review](https://img.youtube.com/vi/VIDEO_ID/hqdefault.jpg)](https://www.youtube.com/watch?v=sl8GbO0faLA)
 
 ---
 
